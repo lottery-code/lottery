@@ -6,10 +6,18 @@
 
 郑重申明，不要用于用户商业用途，如执意进行违法操作，与本人无任何关系。
 
-源码下载
-链接: https://pan.baidu.com/s/1DNaI7MAQm5NnMAnaqAIHgg?pwd=3nm6 提取码: 3nm6
+源码备份下载
+链接: https://pan.baidu.com/s/1DNaI7MAQm5NnMAnaqAIHgg?pwd=3nm6 
+提取码: 3nm6
 
 项目源码部署安装视频录像地址
-
 https://youtu.be/0V2B0zp7HuU
+
+
 竞彩足球，竞彩篮球，北京单场，排列3,排列5，任选九,足球14场,七星彩,大乐透,足球比赛，足球数据，足球算法，足球下单,体彩
+项目源码部署安装视频录像地址
+
+
+如果你也喜研究 可加我 QQ 419367301
+
+飞机t.me/qihang9981
